@@ -1,1 +1,1 @@
-# Ja-Ca-
+# Hello-world my name is jarolina and I am interested in becoming a sowftware develpoer. I dont really know how to code, or how to use a computer, but thats what I want to do so I'm gonna do it. I'm going to college undecided because I dont knwo what classes to take to become a software develpoer but I know in the end someone will figure it out for me. Lord help us all. 
